@@ -8,6 +8,8 @@
   <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery01/e278b2c6.png?v=3631ebfb">
     </br>
   <img align="center" src="https://imgur.com/hI1h2FM.png">
+  </br>
+  <sup>irl ff16 leviathan 0_o</sup>
     </br>
   <img align="center" src="https://graphic.neocities.org/ff7.gif">
   <img align="center" src="https://komarev.com/ghpvc/?username=riisiingtiide&color=24d1ff&style=plastic&label=haaiii!!!&abbreviated=true">

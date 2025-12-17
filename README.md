@@ -13,7 +13,6 @@
   <img align="center" src="https://komarev.com/ghpvc/?username=riisiingtiide&color=24d1ff&style=plastic&label=haaiii!!!&abbreviated=true">
   <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery01/09f70af6.gif?v=c7c39c46">
     </br>
-    </br>
   <img align="center" src="https://imgur.com/xsyKvfl.gif">
     </br>
     </br>

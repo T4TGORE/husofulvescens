@@ -11,7 +11,7 @@
   </br>
   <sub>im THE chocoletsky.. 0_o</sub>
   </br>
-  <sup>=i jsut kin shed rly hard m not him lel</sup>
+  <sup>i jsut kin shed rly hard m not him lel</sup>
   </br>
   <i><sub>i selfship w/ <b>sebastian solace</b> and <b>john doe</b>!</sub>
   </br>

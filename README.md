@@ -11,11 +11,11 @@
   </br>
   <sub>im THE chocoletsky.. 0_o</sub>
   </br>
-  <sup>telamon? noo no im leviathan!!</sup>
+  <sup>=i jsut kin shed rly hard m not him lel</sup>
   </br>
-  <i><sub>liek,, the 1 frm final fantasyy..</sub>
+  <i><sub>i selfship w/ <b>sebastian solace</b> and <b>john doe</b>!</sub>
   </br>
-  <sup>itz y i liek gyarados sm ehe,,</sup></i>
+  <sup>i share dnt wrryyy ^_^</sup></i>
     </br>
     <img align="left" width="100" src="https://img.pokemondb.net/sprites/home/normal/gyarados-mega.png">
   <img align="center" src="https://graphic.neocities.org/ff7.gif">

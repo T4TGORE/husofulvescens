@@ -4,9 +4,9 @@
 <img src="https://graphic.neocities.org/wing_r_by_king_lulu_deer-daymbdh.gif">
   <br>
   <br>
-<img hspace="30" src="https://gifcity.carrd.co/assets/images/gallery313/636fef38.png?v=49efbe4c">
+<img hspace="20" src="https://gifcity.carrd.co/assets/images/gallery313/636fef38.png?v=49efbe4c">
 $\text{\color{#fde9f3} somnus }$ ⋆ $\text{\color{#fde9f3} intersex tmasc enby }$
-<img hspace="30" src="https://gifcity.carrd.co/assets/images/gallery313/636fef38.png?v=49efbe4c">
+<img hspace="20" src="https://gifcity.carrd.co/assets/images/gallery313/636fef38.png?v=49efbe4c">
   <br>
 <img src="https://carcuvorous.carrd.co/assets/images/gallery17/7d648716.png?v=72ce5086"> <sup><i>sweet cannibal angel doll</i></sup> <img src="https://carcuvorous.carrd.co/assets/images/gallery17/852945dc.png?v=72ce5086">
   <br>

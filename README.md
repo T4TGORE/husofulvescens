@@ -16,5 +16,13 @@ $\text{\color{#fde9f3} somnus }$ ⋆ $\text{\color{#fde9f3} intersex tmasc enby 
 $\text{\color{#ffd9eb} nblm }$ 𖹭 $\text{\color{#ffd9eb} i love my bfie! }$ 
 <img height="20" src="https://gifcity.carrd.co/assets/images/gallery83/32ca7e6d.gif?v=49efbe4c">
   <br>
+<img src="https://enchantments.carrd.co/assets/images/gallery18/a52a99bd.gif?v=5c8435d5">
+$\text{\color{#f4bfd8} not a 4saken fan }$ 𖹭 $\text{\color{#f4bfd8} i just am 2time }$ 
+<img src="https://enchantments.carrd.co/assets/images/gallery18/a52a99bd.gif?v=5c8435d5">
+  <br>
+<img src="https://enchantments.carrd.co/assets/images/gallery18/e407b06f.gif?v=5c8435d5">
+$\text{\color{#eaa9c8} hide me if my existence bothers u xx }$
+<img src="https://enchantments.carrd.co/assets/images/gallery18/e407b06f.gif?v=5c8435d5">
+  <br>
   <br>
 <img align="center" src="https://gifcity.carrd.co/assets/images/gallery49/ceeed9db.png?v=49efbe4c">

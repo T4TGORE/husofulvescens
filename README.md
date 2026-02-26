@@ -13,7 +13,7 @@ $\text{\color{#fde9f3} somnus }$ ⋆ $\text{\color{#fde9f3} intersex tmasc enby 
 <img align="center" height="75" src="https://carcuvorous.carrd.co/assets/images/gallery19/4d555d21.png?v=72ce5086">
   <br>
 <img height="20" src="https://gifcity.carrd.co/assets/images/gallery83/32ca7e6d.gif?v=49efbe4c">
-$\text{\color{#ffd9eb} nblm }$ 𖹭 $\text{\color{#ffd9eb} i love my bfie! }$ 
+$\text{\color{#ffd9eb} poly nblm }$ 𖹭 $\text{\color{#ffd9eb} i love my boyfrens! }$ 
 <img height="20" src="https://gifcity.carrd.co/assets/images/gallery83/32ca7e6d.gif?v=49efbe4c">
   <br>
 <img src="https://enchantments.carrd.co/assets/images/gallery18/a52a99bd.gif?v=5c8435d5">
